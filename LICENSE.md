@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with leverage trading bot vip Strategy | scalping & webhook-support, the #1 leverage trading bot. Includes scalping and webhook-support for a smoother and
 
 
 
